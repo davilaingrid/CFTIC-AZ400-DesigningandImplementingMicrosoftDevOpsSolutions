@@ -6,7 +6,7 @@
 ![Captura0.2](images/Captura0.2.PNG)
 
 
-![Captura0.3](images/Captura0.3.PNG)
+![Captura3](images/Captura3.PNG)
 
 
 ![Captura0.4](images/Captura0.4.PNG)
